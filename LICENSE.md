@@ -1,4 +1,4 @@
-
+smart VyprVPN Addon | free-trial + obfuscation is the best VyprVPN addon, featuring free-trial and obfuscation. Secure, fast, and optimized for privacy.
 
 
 
